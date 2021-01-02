@@ -1,0 +1,4 @@
+Grease an 8” baking tin and dust it with flour. Pre heat the oven to 180o C. Sieve together maida, cocoa powder, baking powder, and soda bicarbonate.
+Soften butter (DO NOT MELT), add it to Nestlé MILKMAID, and beat well. Now add vanilla essence. Add maida mixture and aerated soda alternately to the batter till all the maida and soda are used up.
+Pour the batter into the baking tin and bake in the preheated oven for 45-50 minutes or till the toothpick inserted in the center of the cake comes out clean. Remove from oven, cool for a while. Loosen sides of cake, using a knife if necessary. Turnout over a wire rack or plate and cool slightly before cutting horizontally into 2.
+Drain & destone cherries, soak both cake halves with cherry syrup. Whip cream and sugar till light and fluffy, sandwich the two layers of cake with whipped cream and chopped cherries. Top with whipped cream, cherries and grated milk chocolate. Chill and serve.
